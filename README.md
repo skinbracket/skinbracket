@@ -1,2 +1,2 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=PT+SKIN+BRACKET+2025+skin+tournament;check+out+the+rentry+for+more+info!;submit+your+skins+via+google+form!)](https://git.io/typing-svg)
-<br> PTSKIN BRACKET, a skin tournament in the big 2025! <br> read rentry for more info <br> SUBMIT your skins [HERE](https://docs.google.com/forms/d/e/1FAIpQLSfYg2M-jF5qxjHqHiYPSuILCSEBzUweZGftOstJh-6FpEyhIw/viewform)
+<br> PTSKIN BRACKET, a skin tournament in the big 2025! <br> read rentry for more info <br> SUBMIT your skins [HERE](https://docs.google.com/forms/d/e/1FAIpQLSfYg2M-jF5qxjHqHiYPSuILCSEBzUweZGftOstJh-6FpEyhIw/viewform) <br> more info [HERE](https://rentry.co/skinbracket)
