@@ -7,4 +7,4 @@ C. dont participate if youre gonna get upset over the results,<br>
 D. dont submit skins under multiple users.<br>
 E. submit your skins only.<br>
 F. have fun :-) <br>
-<br> **CHECK OUT RENTRY FOR FAQ** / ask questions in atabook <br> ----- UPDATES : <br> 11th of july; <br> WE HAVE 19 SUBMISSIONS! <br>
+<br> **CHECK OUT RENTRY FOR FAQ** / ask questions in atabook <br> ----- UPDATES : <br> 11th of july; <br> WE HAVE 19 SUBMISSIONS! remember that ANYONE can Vote! <br>
