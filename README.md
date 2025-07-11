@@ -6,21 +6,5 @@ B. you cannot change your submission once submitted,<br>
 C. dont participate if youre gonna get upset over the results,<br>
 D. dont submit skins under multiple users.<br>
 E. submit your skins only.<br>
-F. have fun :-)
-<br> <br>
-FAQ<br>
-**What is pt skin bracket?**<br>
-a bracket tournament for pony town users to rank skins made by other users<br>
-
-**How do i submit my skin?**<br>
-**[via google form](https://forms.gle/v3buJfoqn8DBgWoRA)** thats only available until july 20th!<br>
-upload your skin on [catbox](https://catbox.moe/) (or anywhere else) and paste the link there <br>
-
-**How do i vote?**<br>
-voting will take place through atabook - to avoid people rigging the votes. after the bracket is finished the atabook will be deleted! all votes WILL remain anonymous; as no messages will show up on main page. you will be blocked from leaving a message after you cast your vote so CHOOSE WISELY. vpn messages will NOT work. <br>
-
-**When will the first round voting start?**<br>
-somewhere between july 22nd-24th - everyone will be paired in submission order; if it ends up as an odd number, the last person will have to be cut off from participating. next voting will take place 2 days after the previous one. <br>
-
-
-
+F. have fun :-) <br>
+<br> **CHECK OUT RENTRY FOR FAQ** / ask questions in atabook <br> ----- UPDATES : <br> 11th of july; <br> WE HAVE 19 SUBMISSIONS! <br>
