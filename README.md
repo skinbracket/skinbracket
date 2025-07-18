@@ -7,5 +7,4 @@ C. dont participate if youre gonna get upset over the results,<br>
 D. dont submit skins under multiple users.<br>
 E. submit your skins only.<br>
 F. have fun :-) <br>
-<br> **CHECK OUT RENTRY FOR FAQ** / ask questions in atabook <br> ----- UPDATES : <br> WE have 30 submissions. it would be IDEAL to get to 32 submissions.. convince your friends to join 
-<br> IF WE DO HAPPENTO GET ABOVE 32 WE CAN START A BONUS BRACKET ITS OK
+<br> **CHECK OUT RENTRY FOR FAQ** / ask questions in atabook <br> ----- UPDATES :
