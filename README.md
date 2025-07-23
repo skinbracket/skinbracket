@@ -1,20 +1,20 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=VOTEEEEEEE=NOWWWWW;HAVE+FUN+&+GOODLUCK!)](https://git.io/typing-svg) <br> 
 SUBMIT YOUR SKINS [HERE](https://docs.google.com/forms/d/e/1FAIpQLSfYg2M-jF5qxjHqHiYPSuILCSEBzUweZGftOstJh-6FpEyhIw/viewform) if you want to participate in bonus bracket (only count of 8, 16, 24 or 32 is allowed to participate) <br> FAQ & DETAILS [HERE](https://rentry.co/skinbracket) <br> LINK TO VIEW THE FULL BRACKET [HERE](https://rentry.co/skinbracket1) <br>
 CLOSE-UPS OF PARTICIPANTS [HERE](https://rentry.co/skinbracket2) <br>
-VOTE [HERE](https://skinbracket2025.atabook.org/) <br> QUESTION/ COMMENTS [HERE](https://ptskinbracket2025.atabook.org/) <br> <br> <img src="https://komarev.com/ghpvc/?username=skinbracket&color=5C5C5C&style=flat-square&label=views&base=0"> <br> <br> 
+VOTE [HERE](https://surveymars.com/q/78grMsVKo) <br> QUESTION/ COMMENTS [HERE](https://ptskinbracket2025.atabook.org/) <br> <br> <img src="https://komarev.com/ghpvc/?username=skinbracket&color=5C5C5C&style=flat-square&label=views&base=0"> <br> <br> 
 
  ----- UPDATES :
 <br> from now on all updates will happen between 11 am - 1 pm GMT :-) <br> apologies for a late update, its all due to timezones and i forgot they exist <br> <br>
 LINK TO VIEW THE FULL BRACKET [HERE](https://rentry.co/skinbracket1) <br>
 CLOSE-UPS OF PARTICIPANTS [HERE](https://rentry.co/skinbracket2) <br>
-VOTE [HERE](https://skinbracket2025.atabook.org/) <br> 
-^ Please ignore the order of numbers, i CANT change it (i glitched out the question amount LOL) <br> <br>
+VOTE [HERE](https://surveymars.com/q/78grMsVKo) <br> 
+<br>
  ----- FAQ : <br>
 **How do I vote?**
 [VOTE HERE](https://surveymars.com/q/78grMsVKo)
 
 **What about other contestants?**
-<br> youll be able to vote for contestants from the second bracket some time later.
+<br> youll be able to vote for contestants some time later - there has been only 7 submissions and i canr start a bracket from that amount
 <br> I'll be taking google forms until i get 16 participants for bonus round! <br>
 
 **How long does voting last?** <br>
