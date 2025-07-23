@@ -4,7 +4,7 @@ CLOSE-UPS OF PARTICIPANTS [HERE](https://rentry.co/skinbracket2) <br>
 VOTE [HERE](https://skinbracket2025.atabook.org/) <br> QUESTION/ COMMENTS [HERE](https://ptskinbracket2025.atabook.org/) <br> <br> <img src="https://komarev.com/ghpvc/?username=skinbracket&color=5C5C5C&style=flat-square&label=views&base=0"> <br> <br> 
 
  ----- UPDATES :
-<br> from now on all updates will happen between 11 am - 1 pm GMT +0 :-) <br> apologies for a late update, its all due to timezones and i forgot they exist <br> <br>
+<br> from now on all updates will happen between 11 am - 1 pm GMT :-) <br> apologies for a late update, its all due to timezones and i forgot they exist <br> <br>
 LINK TO VIEW THE FULL BRACKET [HERE](https://rentry.co/skinbracket1) <br>
 CLOSE-UPS OF PARTICIPANTS [HERE](https://rentry.co/skinbracket2) <br>
 VOTE [HERE](https://skinbracket2025.atabook.org/) <br> 
@@ -16,6 +16,9 @@ VOTE [HERE](https://skinbracket2025.atabook.org/) <br>
 **What about other contestants?**
 <br> youll be able to vote for contestants from the second bracket some time later.
 <br> I'll be taking google forms until i get 16 participants for bonus round! <br>
+
+**How long does voting last?** <br>
+48 Hours. until 3 AM GMT.<br> if youre clueless what 3 AM GMT in your timezone is - look up " 3 AM GMT in (your country) "
 
 <br> enjoy this high quality picture - EVERYONE is paired up in submission order <br> 
 again check out [CLOSE-UPS](https://rentry.co/skinbracket2) to see them all better ![](https://files.catbox.moe/5dtm8o.png)
