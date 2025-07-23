@@ -18,7 +18,7 @@ VOTE [HERE](https://skinbracket2025.atabook.org/) <br>
 <br> I'll be taking google forms until i get 16 participants for bonus round! <br>
 
 **How long does voting last?** <br>
-48 Hours. until 3 AM GMT.<br> if youre clueless what 3 AM GMT in your timezone is - look up " 3 AM GMT in (your country) "
+48 Hours. until 3 AM GMT (25th of july) .<br> if youre clueless what 3 AM GMT in your timezone is - look up " 3 AM GMT in (your country) "
 
 <br> enjoy this high quality picture - EVERYONE is paired up in submission order <br> 
 again check out [CLOSE-UPS](https://rentry.co/skinbracket2) to see them all better ![](https://files.catbox.moe/5dtm8o.png)
