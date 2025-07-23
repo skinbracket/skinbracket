@@ -7,7 +7,7 @@ LINK TO VIEW THE FULL BRACKET [HERE](https://rentry.co/skinbracket1) <br>
 CLOSE-UPS OF PARTICIPANTS [HERE](https://rentry.co/skinbracket2) <br> 
  <br>
  ----- FAQ : <br>
-**How do I vote?**
+**How do I vote?** <br>
 [VOTE HERE](https://surveymars.com/q/78grMsVKo)
 
 **What about other contestants?**
@@ -18,4 +18,16 @@ CLOSE-UPS OF PARTICIPANTS [HERE](https://rentry.co/skinbracket2) <br>
 48 Hours. until 3 AM GMT (25th of july) .<br> if youre clueless what 3 AM GMT in your timezone is - look up " 3 AM GMT in (your country) "
 
 <br> enjoy this high quality picture - EVERYONE is paired up in submission order <br> 
-again check out [CLOSE-UPS](https://rentry.co/skinbracket2) to see them all better ![](https://files.catbox.moe/5dtm8o.png)
+again check out [CLOSE-UPS](https://rentry.co/skinbracket2) to see them all better ![](https://files.catbox.moe/5dtm8o.png) <br>
+**How do I vote?** <br>
+[VOTE HERE](https://surveymars.com/q/78grMsVKo)<br>
+**How do I vote?** <br>
+[VOTE HERE](https://surveymars.com/q/78grMsVKo)<br>
+**How do I vote?** <br>
+[VOTE HERE](https://surveymars.com/q/78grMsVKo)<br>
+**How do I vote?** <br>
+[VOTE HERE](https://surveymars.com/q/78grMsVKo)<br>
+**How do I vote?** <br>
+[VOTE HERE](https://surveymars.com/q/78grMsVKo)<br>
+**How do I vote?** <br>
+[VOTE HERE](https://surveymars.com/q/78grMsVKo)<br>
