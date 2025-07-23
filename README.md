@@ -2,9 +2,7 @@
 SUBMIT YOUR SKINS [HERE](https://docs.google.com/forms/d/e/1FAIpQLSfYg2M-jF5qxjHqHiYPSuILCSEBzUweZGftOstJh-6FpEyhIw/viewform) if you want to participate in bonus bracket (only count of 8, 16, 24 or 32 is allowed to participate)  <br> QUESTION/ COMMENTS [HERE](https://ptskinbracket2025.atabook.org/) <br> <img src="https://komarev.com/ghpvc/?username=skinbracket&color=5C5C5C&style=flat-square&label=views&base=0"> <br> <br>
 
  ----- UPDATES :
-<br> from now on all updates will happen between 11 am - 1 pm GMT :-) <br> apologies for a late update, its all due to timezones and i forgot they exist <br> <br>
-LINK TO VIEW THE FULL BRACKET [HERE](https://rentry.co/skinbracket1) <br>
-CLOSE-UPS OF PARTICIPANTS [HERE](https://rentry.co/skinbracket2) <br> 
+<br> from now on all updates will happen between 11 am - 1 pm GMT :-) <br> apologies for a late update, its all due to timezones and i forgot they exist <br>
  <br>
  ----- FAQ : <br>
 **How do I vote?** <br>
