@@ -11,7 +11,7 @@ VOTE [HERE](https://skinbracket2025.atabook.org/) <br>
 ^ Please ignore the order of numbers, i CANT change it (i glitched out the question amount LOL) <br> <br>
  ----- FAQ : <br>
 **How do I vote?**
-<br> focus on each individual pair, ([CLICK TO ZOOM IN ON PAIR ONE](https://rentry.co/skinbracket2)) <br> then select your preferred option by typing either 'A' or 'B' in [this atabook](https://skinbracket2025.atabook.org/). <br>'A' and 'B' represent one of the two participants, and your selection will be counted as your vote :-) <br>
+[VOTE HERE](https://surveymars.com/q/78grMsVKo)
 
 **What about other contestants?**
 <br> youll be able to vote for contestants from the second bracket some time later.
