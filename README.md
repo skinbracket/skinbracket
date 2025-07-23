@@ -17,5 +17,5 @@ VOTE [HERE](https://skinbracket2025.atabook.org/) <br>
 <br> youll be able to vote for contestants from the second bracket some time later.
 <br> I'll be taking google forms until i get 16 participants for bonus round! <br>
 
-<br> enjoy this high quality picture <br> 
+<br> enjoy this high quality picture - EVERYONE is paired up in submission order <br> 
 again check out [CLOSE-UPS](https://rentry.co/skinbracket2) to see them all better ![](https://files.catbox.moe/5dtm8o.png)
