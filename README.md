@@ -6,6 +6,14 @@
 LINK TO VIEW THE FULL BRACKET [HERE](https://rentry.co/skinbracket1) <br>
 CLOSE-UPS OF PARTICIPANTS [HERE](https://rentry.co/skinbracket2) <br>
 VOTE [HERE](https://skinbracket2025.atabook.org/) <br> 
-^ Please ignore the order of numbers, i CANT change it (i glitched out the question amount LOL) <br>
+^ Please ignore the order of numbers, i CANT change it (i glitched out the question amount LOL) <br> <br>
+ ----- FAQ : <br>
+**How do I vote?**
+<br> focus on each individual pair, ([CLICK TO ZOOM IN ON PAIR ONE](https://rentry.co/skinbracket2)) <br> then select your preferred option by typing either 'A' or 'B' in [this atabook](https://skinbracket2025.atabook.org/). <br>'A' and 'B' represent one of the two participants, and your selection will be counted as your vote :-) <br>
+
+**What about other contestants?**
+<br> youll be able to vote for contestants from the second bracket some time later.
+<br> I'll be taking google forms until i get 16 participants for bonus round! <br>
+
 <br>
 enjoy this high quality picture <br> again check out [CLOSE-UPS](https://rentry.co/skinbracket2) to see them all better ![](https://files.catbox.moe/5dtm8o.png)
