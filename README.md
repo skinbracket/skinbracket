@@ -17,4 +17,4 @@ Round one has finished! :-)
 <br> I'll be taking google forms until i get enough participants for bonus round! <br>
 
 **How long does voting last?** <br>
-48 Hours. until 3 AM GMT (25th of july) .<br> if youre clueless what 3 AM GMT in your timezone is - look up " 3 AM GMT in (your country) "
+48 Hours. until 3 AM GMT .<br> if youre clueless what 3 AM GMT in your timezone is - look up " 3 AM GMT in (your country) "
