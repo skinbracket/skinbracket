@@ -2,7 +2,7 @@
 SUBMIT YOUR SKINS [HERE](https://docs.google.com/forms/d/e/1FAIpQLSfYg2M-jF5qxjHqHiYPSuILCSEBzUweZGftOstJh-6FpEyhIw/viewform) if you want to participate in bonus bracket (only count of 8, 16, 24 or 32 is allowed to participate)  <br> QUESTION/ COMMENTS [HERE](https://ptskinbracket2025.atabook.org/) <br> <img src="https://komarev.com/ghpvc/?username=skinbracket&color=5C5C5C&style=flat-square&label=views&base=0"> <br> <BR> all updates happen between 11 am - 1 pm GMT <br>
 
 
- ----- UPDATES : <br> <br> 24 HOURS TO VOTE FOR PAIR 9! ![](https://surveymars.com/q/liaf6Mirx) AGAIN! CONVINCE YOUR FRIENDS TO TAKE PART IN THE EVENT! <br> we are voting pair 9 again because they tied with 31 votes each! <br>
+ ----- UPDATES : <br> <br> 24 HOURS TO VOTE FOR PAIR 9! ![HEREEEEEEEEEEEEEE](https://surveymars.com/q/liaf6Mirx) AGAIN! CONVINCE YOUR FRIENDS TO TAKE PART IN THE EVENT! <br> we are voting pair 9 again because they tied with 31 votes each! <br>
 
 ![](https://files.catbox.moe/bflxfx.png) <br>
 
