@@ -6,7 +6,7 @@ SUBMIT YOUR SKINS [HERE](https://docs.google.com/forms/d/e/1FAIpQLSfYg2M-jF5qxjH
 
 I WIll update the image below soon, pair 9 has gotten an equal amount of votes: 31:31 which results in a tie! Round 2 is gonna happen after we figure it out :-p. Im gonna put pair 9 in a voting round again! then we can start round two :) <br> <br>
 <br> enjoy this high quality picture - EVERYONE is paired up in submission order <br> 
-again check out [CLOSE-UPS](https://rentry.co/skinbracket2) to see them all better ![](https://files.catbox.moe/5dtm8o.png) <br>
+again check out [CLOSE-UPS](https://rentry.co/skinbracket2) to see them all better ![](https://files.catbox.moe/bflxfx.png) <br>
 
  ----- FAQ : <br>
 **How do I vote?** <br>
