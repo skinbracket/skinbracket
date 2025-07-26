@@ -4,7 +4,7 @@ SUBMIT YOUR SKINS [HERE](https://docs.google.com/forms/d/e/1FAIpQLSfYg2M-jF5qxjH
 
  ----- UPDATES : <br> <br> 24 HOURS TO VOTE FOR PAIR 9! ![](https://surveymars.com/q/liaf6Mirx) AGAIN! CONVINCE YOUR FRIENDS TO TAKE PART IN THE EVENT! <br> we are voting pair 9 again because they tied with 31 votes each! <br>
 
-(https://files.catbox.moe/bflxfx.png) <br>
+![](https://files.catbox.moe/bflxfx.png) <br>
 
  ----- FAQ : <br>
 **How do I vote?** <br>
