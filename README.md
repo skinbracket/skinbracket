@@ -3,7 +3,7 @@ SUBMIT YOUR SKINS [HERE](https://docs.google.com/forms/d/e/1FAIpQLSfYg2M-jF5qxjH
 
 
  ----- UPDATES : <BR> [ROUND TWOOO!!!](https://surveymars.com/q/inCwjtBs9) <br>
-![](https://files.catbox.moe/cu7550.png) <br>
+![](https://files.catbox.moe/xpflvf.png) <br>
 
  ----- FAQ : <br>
 **How do I vote?** <br>
