@@ -6,8 +6,6 @@ SUBMIT YOUR SKINS [HERE](https://docs.google.com/forms/d/e/1FAIpQLSfYg2M-jF5qxjH
 ![](https://files.catbox.moe/xpflvf.png) <br>
 
  ----- FAQ : <br>
-**How do I vote?** <br>
-Round one has finished! :-) <br> <br>
 
 **How long does a voting round last?** <br>
 48 Hours. until 3 PM GMT .<br> if youre clueless what 3 PM GMT in your timezone is - look up " 3 PM GMT in (your country) "
