@@ -2,10 +2,4 @@
 SUBMIT YOUR SKINS [HERE](https://docs.google.com/forms/d/e/1FAIpQLSfYg2M-jF5qxjHqHiYPSuILCSEBzUweZGftOstJh-6FpEyhIw/viewform) if you want to participate in bonus bracket (only count of 8, 16, 24 or 32 is allowed to participate)  <br> QUESTION/ COMMENTS [HERE](https://ptskinbracket2025.atabook.org/) <br> <img src="https://komarev.com/ghpvc/?username=skinbracket&color=5C5C5C&style=flat-square&label=views&base=0"> <br> <BR> all updates happen between 11 am - 1 pm GMT <br>
 
 
- ----- UPDATES : <BR> [ROUND 4!!!](https://surveymars.com/q/NQzU12VBi)   <BR> [ROUND 4!!!](https://surveymars.com/q/NQzU12VBi)   <BR> [ROUND 4!!!](https://surveymars.com/q/NQzU12VBi)   <BR> [ROUND 4!!!](https://surveymars.com/q/NQzU12VBi)  <br>
-![](https://files.catbox.moe/xpflvf.png) <br>
-
- ----- FAQ : <br>
-
-**How long does a voting round last?** <br>
-48 Hours. until 3 PM GMT .<br> if youre clueless what 3 PM GMT in your timezone is - look up " 3 PM GMT in (your country) "
+ Final round tomorrow, please convince all of your friends to vote!
